@@ -1,3 +1,3 @@
-penis
+[b]penis[/b]
 dick
 cock
